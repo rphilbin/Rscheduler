@@ -4,7 +4,7 @@ Dona Flor and a few children
 Church in San Andres Xecul ala Deanna
 ![JournalPgSanAndresXecul](https://user-images.githubusercontent.com/15347869/180512422-b730f017-858e-4ffd-962c-f0c757e08dc2.jpg)
 
-
+What does this do?
 
 
 Bus in Antigua Guatemala
