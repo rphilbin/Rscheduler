@@ -11,3 +11,20 @@ Deanna in front of Temple 1, Tikal, Guatemala
 Deanna with young iguana, San Ignacio Belize (just east of Tikal)
 ![DeaIguana](https://user-images.githubusercontent.com/15347869/180499756-8cc2b128-7bfd-477b-92db-a85186275772.jpg)
 
+
+
+Caye Caulker Lobster Jerk
+![CayeCaulkerLobsterJerk](https://user-images.githubusercontent.com/15347869/180510555-5f181c89-7d4c-40e5-aad7-c9c7f7f40871.jpg)
+
+Deanna after snorkelling with her snorkel coach, Shane, also sailboat captain
+![DeannaSailboatDaneSnorkelCoachSailor](https://user-images.githubusercontent.com/15347869/180511313-d706b2d5-33fc-42dd-b327-8a9f13cfff7d.jpg)
+
+
+
+
+Bed decoration of real orchid flower
+![Bnb](https://user-images.githubusercontent.com/15347869/180509798-5318abbb-21c3-4c94-b08f-89111a3eabbf.jpg)
+
+
+Bob waiting outside
+![BobWaitingOutsidePtoMoreles](https://user-images.githubusercontent.com/15347869/180509237-9bd8b5f1-ece5-45b4-837c-139fad63251e.jpg)
